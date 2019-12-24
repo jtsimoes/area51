@@ -11,7 +11,7 @@ I don't even know.
 
 ### So what's the point?
 
-Make wasting your time.
+Wasting your time.
 
 ### And what do I have to do?
 
